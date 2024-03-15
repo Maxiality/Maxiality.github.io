@@ -1,1 +1,0 @@
-# Maxiality.github.io
